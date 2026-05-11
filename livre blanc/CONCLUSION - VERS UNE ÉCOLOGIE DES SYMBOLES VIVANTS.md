@@ -1,0 +1,3 @@
+
+
+En définitive, "Fractales du Destin" opère une réconciliation nécessaire. Il ne demande pas de choisir entre la raison analytique et l'intuition symbolique, mais offre une architecture où elles se fécondent mutuellement. Il transforme l'utilisateur passif, consommateur de "destin", en un opérateur actif, capable de littératie sur les lignes de code narratives de sa propre réalité. Dans cette écologie des symboles vivants, penser la stratégie, jouer les cartes et agir sur le monde ne sont plus trois activités distinctes, mais un seul et même mouvement fractal de conscience.
